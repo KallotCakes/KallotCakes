@@ -1,7 +1,5 @@
 <p align="center">
  ࿔･ﾟ﹏﹏﹏﹏𓊝﹏﹏﹏﹏༄.°
-<p align="center">
- <img src="https://web.archive.org/web/20090822022452if_/http://geocities.com/ourangelboy5/swimmingfishtag.gif"width=50% height=50%>
 
 <p align="center">
 "These tradeships, East Indiamen...not much keeping 'em above water, but planks of wood 'n the grace o' god."
@@ -17,3 +15,6 @@ I LLLOVE RETURN OF THE OBRA DINN..But i also love
 
 <p align="center">
 ⚓︎
+ <br> click on icons = names AKA SPOILERS
+<p align="left">
+<img src="https://obradinn.com/img/notice.png"width=40%>
