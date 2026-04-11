@@ -7,7 +7,11 @@
 <br> "it's come back."
 <br> $${"Empty."} $$
 <p align="center">
-<img src="https://obradinn.com/img/notice.png"width=30%>
+<img src="https://64.media.tumblr.com/20de18c00f32e6f7645fa6a278a12e0d/tumblr_phbnfc3psl1vjd3qbo1_640.gifv"width=80% height=80%>
 <p align="center">
 I LLLOVE RETURN OF THE OBRA DINN..But i also love
-<br> NATM - ICO trilogy - Rainworld - indie games in general - etc
+<br> NATM - ICO trilogy - Rainworld - indie games in general - natuical history
+<br> etc etc ^-
+
+<p align="center">
+.
