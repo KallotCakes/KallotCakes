@@ -20,6 +20,9 @@ FAVS
 
 <p align="center">
  <img src="https://static.wikia.nocookie.net/obradinn/images/f/f6/Witterel.png/revision/latest?cb=20201030081317"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/2/29/Klestil.png/revision/latest?cb=20201030081312"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/4/4a/Miner.png/revision/latest?cb=20201030081233"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/3/37/Wolff.png/revision/latest?cb=20220502031630"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/1/16/Lau.png/revision/latest?cb=20201030080335"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/e/eb/Li.png/revision/latest?cb=20201030081014"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/f/f2/Akbar.png/revision/latest?cb=20201030080244"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/6/6b/Syed.png/revision/latest?cb=20201030080236"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/8/84/Brennan.png/revision/latest?cb=20201030080238"width=10%><img src="https://static.wikia.nocookie.net/obradinn/images/e/e9/Shirley.png/revision/latest?cb=20201030080140"width=10%>
-<p align="center">
-<p align="left">
-<img src="https://obradinn.com/img/notice.png"width=40%>
+ <p align="center">
+<img src="https://obradinn.com/img/notice.png"width=40% align="left">
+woah hi i'm kale and i LLLLOOVEEEE return of the obra dinn
+<br> some other things i love are
+<br> NATM, sherlock holmes, rainworld, ICO trilogy, indie games in general, nautical history, and uh idk...
+<br> dude this is a w.i.p come back later i'm sorrry...
