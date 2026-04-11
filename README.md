@@ -1,6 +1,6 @@
 <p align="left">
 this page is a bbbbiiiig fat w.i.p, i'll put more info in later
-<br> <img src="https://static.wikia.nocookie.net/obradinn/images/2/29/Klestil.png/revision/latest?cb=20201030081312"width=10%>  ❤︎⁠  <img src="https://static.wikia.nocookie.net/obradinn/images/4/4a/Miner.png/revision/latest?cb=20201030081233"width=10%> 
+<br> <img src="https://static.wikia.nocookie.net/obradinn/images/2/29/Klestil.png/revision/latest?cb=20201030081312"width=4.5%>  ❤︎⁠  <img src="https://static.wikia.nocookie.net/obradinn/images/4/4a/Miner.png/revision/latest?cb=20201030081233"width=5%> 
 
 <p align="center">
  ࿔･ﾟ﹏﹏﹏﹏𓊝﹏﹏﹏﹏༄.°
