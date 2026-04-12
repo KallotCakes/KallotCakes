@@ -1,4 +1,4 @@
-<p align="left">
+<p align="center">
 this page is a bbbbiiiig fat w.i.p, i'll put more info in later
 <br> <img src="https://static.wikia.nocookie.net/obradinn/images/2/29/Klestil.png/revision/latest?cb=20201030081312"width=4.5%>  ❤︎⁠  <img src="https://static.wikia.nocookie.net/obradinn/images/4/4a/Miner.png/revision/latest?cb=20201030081233"width=5%> 
 
@@ -12,7 +12,7 @@ this page is a bbbbiiiig fat w.i.p, i'll put more info in later
 <p align="center">
 $${"Empty."} $$
 <p align="center">
-<img src="https://64.media.tumblr.com/20de18c00f32e6f7645fa6a278a12e0d/tumblr_phbnfc3psl1vjd3qbo1_640.gifv"width=80% height=80%>
+<img src="https://64.media.tumblr.com/20de18c00f32e6f7645fa6a278a12e0d/tumblr_phbnfc3psl1vjd3qbo1_640.gifv"width=100% height=100%>
 <p align="center">
 "They kept sailing in circles. The stars were wrong. He kept saying that, the stars were wrong."
 <p align="center">
