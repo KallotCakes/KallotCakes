@@ -27,6 +27,8 @@ Thank you <b><a href="https://www.dukope.com"/>Lucas Pope</a></b> for peak
 <br>I LOVEEE Return of the Obra Dinn, some other things i love are
 <br>NATM, sherlock holmes, rainworld, ICO trilogy, indie games in general, nautical history, and uh idk...
 <br>dude this is a w.i.p come back later i'm sorrry...
+<div></div><p align="center">
+i play pt sometimes if the interest arises, c+h, w2i, and INT is all encouraged, but i'm probably multitasking irl. i HHHATE roleplaying i'm so sorry it stresses me out, mostly OOC.
  
 <p align="center">
 $${FAVS} $$
