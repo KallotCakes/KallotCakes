@@ -41,15 +41,8 @@ $${FAVS} $$
 ࿔･ﾟ﹏﹏﹏﹏𓊝﹏﹏﹏﹏༄.°
  
 <p align="center">
-<img src="https://upload.wikimedia.org/wikipedia/commons/e/ec/SCP_Foundation_%28emblem%29.svg"width=15%><img src="https://static.wikia.nocookie.net/scp-db/images/8/82/Sarkic.png/revision/latest?cb=20240523143351"width=13%>  <img src="https://scp-wiki.wdfiles.com/local--files/church-of-the-broken-god-hub/SPChu.png"width=14%>
+<img src="https://upload.wikimedia.org/wikipedia/commons/e/ec/SCP_Foundation_%28emblem%29.svg"width=15%>
 
-<p align="center">
-$${FAV \space SCP}$$
-<br>SCP-7376 , SCP-7408 , all of montagueetc's works actually , SCP-4010, SCP-489 , SCP-4999 , SCP-6001 , SCP-451 , SCP-9001
- 
-<div></div>
-<p align="center">
-࿔･ﾟ﹏﹏﹏﹏𓊝﹏﹏﹏﹏༄.°
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=KallotCakes30&style=plastic&label=FATES+SOLVED&color=333319 " title="FATES">
